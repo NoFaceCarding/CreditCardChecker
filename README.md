@@ -24,6 +24,8 @@ Unlock the Full Potential of Premium Today. Elevate your experience, enjoy enhan
 Price: 350 euro
 Payment only Crypto
 
+# Find us / Buy premium 
+
 Telegram: @NoFaceMelon
 
 Official telegram group to buy CCChecker: [HERE](https://t.me/cccnfc)
