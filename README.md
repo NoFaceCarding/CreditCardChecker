@@ -4,7 +4,7 @@
 ![1](https://github.com/user-attachments/assets/4d1436fd-6628-499a-9d89-6408ee033293)
 
 **DOWNLOAD FOR FREE** 
- - on our github or our **[OFFICAL SITE](https://creditcardcheckernfc.netlify.app/)**
+ - on our github or our **[Official site](https://creditcardcheckernfc.netlify.app/)**
 
 # Premium version
  How to Buy Premium?
