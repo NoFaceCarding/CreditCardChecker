@@ -25,3 +25,7 @@ Price: 350 euro
 Payment only Crypto
 
 Telegram: @NoFaceMelon
+
+Official telegram group to buy CCChecker: [HERE](https://t.me/cccnfc)
+
+NoFace Carding official telegram group: [HERE ](https://t.me/NoFaceCarding)
